@@ -7,6 +7,7 @@ But there is a growing movement toward something more natural, more tactile, and
 Once considered a niche craft item, wooden eyewear has matured into a sophisticated, durable, and surprisingly lightweight alternative to traditional acetate or metal frames. Here is why swapping your plastic for ply might be the best decision for your face—and the planet.
 
 ## The Beauty of Natural Grain
+<img width="1280" height="720" alt="image" src="https://github.com/user-attachments/assets/ab964194-1fb4-48d2-a769-c8a388e19101" />
 
 The most immediate difference between wood and plastic is visual depth. Plastic is homogenous; it is the same color all the way through. Wood, however, tells a story.
 
