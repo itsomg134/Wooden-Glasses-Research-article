@@ -42,6 +42,7 @@ To be fair, wooden glasses are not perfect for everyone.
 - **Cost:** Genuine, hand-crafted hardwood frames are typically more expensive than drugstore reading glasses, though comparable to premium designer plastic frames.
 
 ## How to Style Wooden Frames
+<img width="226" height="234" alt="image" src="https://github.com/user-attachments/assets/e3ce7329-ef6f-419c-b62c-e91b6defb17c" />
 
 Wooden glasses are surprisingly versatile.
 - **Business Casual:** A pair of dark walnut or ebony rectangles adds an intellectual, rustic-luxe feel to a blazer and jeans.
