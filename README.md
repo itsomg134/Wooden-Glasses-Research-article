@@ -54,3 +54,17 @@ Wooden glasses are not just a novelty item for hippies or woodworkers. They are 
 When you choose wood, you are choosing a frame that will age with you. It will develop a slight patina from the oils in your skin. It will remain lightweight.
 
 In a world of disposable plastic, wear something that grows.
+
+##  Contact
+
+Om Gedam
+
+GitHub: [https://github.com/itsomg134](https://github.com/itsomg134)
+
+Email: [omgedam123098@gmail.com](mailto:omgedam123098@gmail.com)
+
+Twitter (X): [https://twitter.com/omgedam](https://twitter.com/omgedam)
+
+LinkedIn: [https://linkedin.com/in/omgedam](https://linkedin.com/in/omgedam)
+
+Portfolio: [https://ogworks.lovable.app](https://ogworks.lovable.app)
